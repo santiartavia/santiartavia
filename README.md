@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @santiartavia
+I am 18 years old, from Costa Rica and I want to learn something new every day and improve more every day
+I will be presenting some projects
+I am currently studying software engineering
+Any positive comment or constructive criticism is welcome
